@@ -84,4 +84,5 @@ All sample documents and study scenarios in this portfolio are independently dev
 Medical Writing | Clinical Research | Regulatory Affairs | Clinical Operations
 
 Contact Mail: drfarishpharmd@gmail.com
+
 Linkedin:https://www.linkedin.com/in/dr-farishahammed-j
